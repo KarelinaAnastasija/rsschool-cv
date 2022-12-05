@@ -43,4 +43,4 @@ I have no experience in the IT.
 
 ## **English**
 
-**B1** (In the process of improving the level of English to B2)
+**B1** (In the process of improving the level of English to B2 level)
